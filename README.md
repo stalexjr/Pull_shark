@@ -2,4 +2,4 @@
 
 my emoji
 
-Add people PLZ
+Add people plz
